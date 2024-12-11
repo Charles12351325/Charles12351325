@@ -1,6 +1,6 @@
  Hi, I’m @Charles12351325
  I’m interested in remote/physical data analyst jobs
- you can reach me through my WhatsApp number @ +234 8160879090
+ you can reach me through my WhatsApp number @ +234 8160879090 or my email @charlesbickersteth5@gmail.com
  He/his 
 
 <!---
